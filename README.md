@@ -1,1 +1,0 @@
-https://ligalit.github.io/rsschool-cv/cv
